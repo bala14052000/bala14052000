@@ -1,6 +1,6 @@
 - 👋 Hi, I’m BALAMURUGAN  
-- 👀 I’m interested in LEARNING , HTML, BASIC COMPUTER LANGUAGES & PROGRAMMING LANGUAGES AND CODING
-- 🌱 I’m currently learning 
+- 👀 I’m interested in LEARNING NEW
+- 🌱 I’m currently learning PYTHON
 - 💞️ I’m looking to collaborate on IMPROVE MYSELF
 - 📫 How to reach me ..ON INSTAGRAM @balamurugan_0
 
